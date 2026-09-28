@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @saint-maze
-- hello, I'm beginner at programming, interested in tech n code 
-- any suggestions pls contact thru tele or twitter
-- Telegram : @zip_png
+  hi, im fork1234@
+- idek how to commit (////) 
+- any suggestions or whatever u want to ask or anythings
